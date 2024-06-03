@@ -1,4 +1,4 @@
-## Hi there 👋 I'm pzm9012 | 洺渊
+## Hi there 👋 I'm pzm9012 | Minral (洺渊)
 
 #### Thank you for visiting my profile!
 
